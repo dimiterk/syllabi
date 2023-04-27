@@ -1,3 +1,4 @@
+[Introduction to Philosophy Summer 23 Syllabus - Google Docs.pdf](https://github.com/dimiterk/Intro_to_Phil_HU/files/11338575/Introduction.to.Philosophy.Summer.23.Syllabus.-.Google.Docs.pdf)
 # Intro_to_Phil_HU
 Introduction to Philosophy Course
 
